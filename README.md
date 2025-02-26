@@ -44,7 +44,7 @@ I'm a Front-End Developer with a strong background in Motion Design and a passio
 
 💼 LinkedIn: linkedin.com/in/luanmcarvalho
 
-✉️ Email: luanmcarvalho1@gmail.com
+✉️ Email: luan@hoverstudio.tv
 
 Let's build amazing web experiences together! 🚀
 
